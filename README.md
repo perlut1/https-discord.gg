@@ -1,3 +1,1 @@
-# https-discord.gg
-
-4gKp1hKtL6uqgrGvLVL9UVibajKoAFjUApRGutd39Wgt
+7cCMYZ57dsJRann8YsAb7qSqafAUYwMsJCaa3d7Ez4ji
